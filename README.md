@@ -1,0 +1,1 @@
+# kyamazaki10.github.io
